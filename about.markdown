@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Novisona
+title: About
 permalink: /about/
 ---
 
