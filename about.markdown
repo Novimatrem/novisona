@@ -3,7 +3,6 @@ layout: page
 title: Novisona
 permalink: /about/
 ---
-## Novisona
 
+Here are testing words on the about page.
 
-___
