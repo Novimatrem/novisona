@@ -5,7 +5,7 @@ permalink: /about/
 ---
 [!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!] 
 
-  Novimatrem fursona 2023 work in progress v3
+  Novimatrem fursona 2023 work in progress v4
 -=============================================-
 
 Name: zoey/Novi
@@ -25,6 +25,8 @@ Height: 5ft 4inch.
 Eyes: Dark-blue eyes.
 
 Hair: Long butt-length soft black-hair, slightly curly. Her hair is always quite warm.
+
+Tail: she has a reasonable length adorable fluffy cat tail, which is colored similarly to the rest of her fur, it beautifully calmy swishes thoughout the day
 
 Mood: sleepy/relaxed/calm/happy
 
