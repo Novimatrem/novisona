@@ -5,7 +5,7 @@ permalink: /about/
 ---
 [!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!] 
 
-  Novimatrem fursona 2023 work in progress v2
+  Novimatrem fursona 2023 work in progress v3
 -=============================================-
 
 Name: zoey/Novi
@@ -33,6 +33,8 @@ Weight: 1,863lbs [which equals to 845kg] A lot of her weight is located at her b
 Pregnancy: YES, very.
 
 Paws: she has them, yes. both at the end of her arms, and at the bottom of her legs. 100% paws, all the time.
+
+Sexuality: Pansexual Polyamorous
 
 On her chest: Six (6) breasts, with large nipples, her boobs are swollen and fat.
 
