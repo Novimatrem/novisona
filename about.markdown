@@ -5,12 +5,16 @@ permalink: /about/
 ---
 [!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!] 
 
-  Novimatrem fursona 2023 work in progress v1
+  Novimatrem fursona 2023 work in progress v2
 -=============================================-
 
 Name: zoey/Novi
 
 Species: Cat (cat girl, with fur)
+
+Gender: Female
+
+Pronouns: she/her/hers
 
 Fur: Dark brown fur, blackish brown. Her fur is always quite warm.
 
