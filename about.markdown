@@ -5,7 +5,7 @@ permalink: /about/
 ---
 [!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!] 
 
-  Novimatrem fursona 2023 work in progress v6
+  Novimatrem fursona 2023 work in progress v7
 -=============================================-
 
 Name: zoey/Novi
@@ -42,7 +42,7 @@ Sexuality: Pansexual Polyamorous
 
 On her chest: Six (6) breasts, with large nipples, her boobs are swollen and fat.
 
-Genitals: full package futa girl, with a penis (not erect), vagina, and testes.
+Genitals: full package futa girl, with a penis (not erect, barbed), vagina, and testes.
 
 My existing profile picture is a reasonable idea of what her face is somewhat like, but, you know, furrier :3
 
