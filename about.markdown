@@ -5,7 +5,7 @@ permalink: /about/
 ---
 [!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!] 
 
-  Novimatrem fursona 2023 work in progress v7
+  Novimatrem fursona 2023 work in progress v8
 -=============================================-
 
 Name: zoey/Novi
@@ -30,7 +30,7 @@ Tail: she has a reasonable length adorable fluffy cat tail, which is colored sim
 
 Mood: sleepy/relaxed/calm/happy
 
-Weight: 1,863lbs [which equals to 845kg] A lot of her weight is located at her belly.
+Weight: 1,863lbs [which equals to 845kg] A lot of her weight is located at her belly. She's extremely heavily morbidly obese.
 
 Pregnancy: YES, very.
 
