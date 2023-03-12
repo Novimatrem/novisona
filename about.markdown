@@ -5,7 +5,7 @@ permalink: /about/
 ---
 [!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!] 
 
-  Novimatrem fursona 2023 work in progress v9
+  Novimatrem fursona 2023 work in progress v10
 -=============================================-
 
 Name: zoey/Novi
@@ -33,6 +33,8 @@ Mood: sleepy/relaxed/calm/happy
 Weight: 1,863lbs [which equals to 845kg] A lot of her weight is located at her belly. She's extremely heavily morbidly obese.
 
 Pregnancy: YES, very.
+
+BMI (Body mass index): 319.7 BMI
 
 Body fat percentage: 94%
 
