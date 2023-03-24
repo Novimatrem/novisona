@@ -6,10 +6,10 @@ permalink: /about/
 
 <style>
 html {
-  filter: invert(0.1);
+  filter: invert(0.5);
 }
 body {
-  filter: invert(0.1);
+  filter: invert(0.5);
 }
 </style>
 
