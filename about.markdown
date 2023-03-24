@@ -1,6 +1,6 @@
 ---
 layout: page
-title: About
+title: My delightful Fursona - About
 permalink: /about/
 ---
 
