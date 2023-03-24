@@ -3,6 +3,16 @@ layout: page
 title: About
 permalink: /about/
 ---
+
+<style>
+html {
+  filter: invert(1);
+}
+body {
+  filter: invert(1);
+}
+</style>
+
 [!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!] 
 
   Novimatrem fursona 2023 work in progress v11
