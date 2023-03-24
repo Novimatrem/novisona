@@ -11,6 +11,9 @@ html {
 body {
   filter: invert(0.0);
 }
+img {
+  filter: invert(1.0);
+}
 </style>
 
 [!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!] 
