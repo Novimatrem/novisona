@@ -24,7 +24,7 @@ iframe {
 
 <sup>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</sup>
 
-  Novimatrem fursona 2023 work in progress v13
+  Novimatrem fursona 2023 work in progress v14
 -=============================================-
 
 • Name: zoey/Novi
@@ -47,7 +47,7 @@ iframe {
 
 • Tail: she has a reasonable length adorable fluffy cat tail, which is colored similarly to the rest of her fur, it beautifully calmy swishes thoughout the day
 
-• Mood: sleepy/relaxed/calm/happy
+• Mood: sleepy/relaxed/calm/happy - she spends most of her time sleeping and eating.
 
 • Favourite food: Bacon triple-cheeseburger
 
