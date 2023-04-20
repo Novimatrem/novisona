@@ -24,7 +24,7 @@ iframe {
 
 <sup>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</sup>
 
-  Novimatrem fursona 2023 work in progress v15
+  Novimatrem fursona 2023 work in progress v16
 -=============================================-
 
 • Name: zoey/Novi
@@ -67,7 +67,7 @@ iframe {
 
 • On her chest: Six (6) breasts, with large nipples, her boobs are swollen and fat.
 
-• Genitals: full package futa girl, with a penis (not erect, barbed), vagina, and testes. Though they are all certainly covered and hidden by her extreme fatness, regardless.
+• Genitals: full package futa girl, with a penis (not erect, barbed), vagina, and testes. Though they are all certainly covered and hidden by her extreme fatness, and immense pregnancy, regardless.
 
 My existing profile picture is a reasonable idea of what her face is somewhat like, but, you know, furrier :3
 
