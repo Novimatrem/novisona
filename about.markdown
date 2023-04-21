@@ -24,7 +24,7 @@ iframe {
 <br>
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 
-  Novimatrem fursona 2023 work in progress v17
+  Fursona work in progress (NSFW) v17
 -=============================================-
 
 • Name: zoey/Novi
