@@ -21,8 +21,8 @@ iframe {
   filter: invert(1.0);
 }
 </style>
-
-<sup>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</sup>
+<br>
+<sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 
   Novimatrem fursona 2023 work in progress v17
 -=============================================-
