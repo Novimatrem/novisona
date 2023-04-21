@@ -76,7 +76,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
 #### Novimatrem existing profile image (not my fursona):
 <details>
     <summary>Show/hide:</summary>
-    ![Novimatrem profile image](https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png)
+    <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
 
