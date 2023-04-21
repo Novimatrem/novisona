@@ -73,9 +73,12 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
 
 **There is no art of my fursona, yet.**
 
-### Novimatrem existing profile image (not my fursona):
+#### Novimatrem existing profile image (not my fursona):
+<details>
+    <summary>Show/hide:</summary>
+    ![Novimatrem profile image](https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png)
+</details>
 
-![Novimatrem profile image](https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png)
 
 
 
