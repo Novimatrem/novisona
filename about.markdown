@@ -24,7 +24,7 @@ iframe {
 <br>
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 
-  Fursona work in progress (NSFW) v17
+  Fursona work in progress (NSFW) v18
 -=============================================-
 
 • Name: zoey/Novi
@@ -69,7 +69,7 @@ iframe {
 
 • Genitals: full package futa girl, with a penis (not erect, barbed), vagina, and testes. Though they are all certainly covered and hidden by her extreme fatness, and immense pregnancy, regardless.
 
-My existing profile picture is a reasonable idea of what her face is somewhat like, but, you know, furrier :3
+My existing profile picture is a reasonable idea of what her face is somewhat like, but, you know, furrier, and with whiskers and such :3
 
 **There is no art of my fursona, yet.**
 
