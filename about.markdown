@@ -24,10 +24,10 @@ iframe {
 <br>
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 
-  Fursona work in progress (NSFW) v18
+  Fursona work in progress (NSFW) v19
 -=============================================-
 
-• Name: zoey/Novi
+• Name: zoey
 
 • Species: Cat (cat girl, with fur)
 
@@ -45,7 +45,7 @@ iframe {
 
 • Hair: Long butt-length soft black-hair, slightly curly. Her hair is always quite warm.
 
-• Tail: she has a reasonable length adorable fluffy cat tail, which is colored similarly to the rest of her fur, it beautifully calmy swishes thoughout the day
+• Tail: she has a reasonable length adorable fluffy cat tail, which is colored similarly to the rest of her fur, it's usually squished by her fat butt
 
 • Mood: sleepy/relaxed/calm/happy - she spends most of her time sleeping and eating.
 
@@ -67,7 +67,7 @@ iframe {
 
 • On her chest: Six (6) breasts, with large nipples, her boobs are swollen and fat.
 
-• Genitals: full package futa girl, with a penis (not erect, barbed), vagina, and testes. Though they are all certainly covered and hidden by her extreme fatness, and immense pregnancy, regardless.
+• Genitals: full package futa girl, with a penis (10 inches, barbed), vagina, and testes (big). Though they are all certainly covered and hidden by her extreme fatness, and immense pregnancy, regardless.
 
 My existing profile picture is a reasonable idea of what her face is somewhat like, but, you know, furrier, and with whiskers and such :3
 
