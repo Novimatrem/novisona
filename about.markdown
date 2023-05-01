@@ -24,7 +24,7 @@ iframe {
 <br>
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 
-  Fursona work in progress (NSFW) v19
+  Fursona work in progress (NSFW) v20
 -=============================================-
 
 • Name: zoey
@@ -51,7 +51,7 @@ iframe {
 
 • Favourite food: Bacon triple-cheeseburger
 
-• Weight: 1,863lbs [which equals to 845kg] A lot of her weight is located at her belly. She's extremely heavily morbidly obese.
+• Weight: 1,863lbs [which equals to 845kg] A lot of her weight is located at her belly. She's extremely heavily morbidly obese. Her belly button is an innie.
 
 • Pregnancy: YES, very. Has been continuously pregnant with many multiples, starting a few years ago, and still going. Her massive womb perpetually gigantic.
 
