@@ -24,8 +24,10 @@ iframe {
 <br>
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 
-  Fursona work in progress (NSFW) v20
+  Fursona work in progress (NSFW) v21
 -=============================================-
+
+Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • Name: zoey
 
