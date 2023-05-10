@@ -24,7 +24,7 @@ iframe {
 <br>
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 
-  Fursona work in progress (NSFW) v21
+  Fursona work in progress (NSFW) v22
 -=============================================-
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
@@ -69,7 +69,7 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • On her chest: Six (6) breasts, with large nipples, her boobs are swollen and fat.
 
-• Genitals: full package futa girl, with a penis (10 inches, barbed), vagina, and testes (big). Though they are all certainly covered and hidden by her extreme fatness, and immense pregnancy, regardless.
+• Genitals: full package futa girl, with a penis (14 inches, barbed), vagina, and testes (big). Though they are all certainly covered and hidden by her extreme fatness, and immense pregnancy, regardless.
 
 My existing profile picture is a reasonable idea of what her face is somewhat like, but, you know, furrier, and with whiskers and such :3
 
