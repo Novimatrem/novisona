@@ -24,7 +24,7 @@ iframe {
 <br>
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 
-  Fursona work in progress (NSFW) v22
+  Fursona work in progress (NSFW) v23
 -=============================================-
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
@@ -61,7 +61,7 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • Body fat percentage: 94%
 
-• Mobility: very little, she can basically only stand for around a couple of minutes at a time, and even that's very physically taxing and demanding, only can manage very slowly waddling. Essentially remains immobile, for the best. 
+• Mobility: very little, she can basically only stand for around 30 seconds at a time, and even that's very physically taxing and demanding, only can manage very very slowly waddling. Essentially remains immobile, for the best. She hasn't reasonably been able to stand since 2015, and hasn't tried to since 2016.
 
 • Paws: she has them, yes. both at the end of her arms, and at the bottom of her legs. 100% paws, all the time.
 
