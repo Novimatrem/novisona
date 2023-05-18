@@ -24,7 +24,7 @@ iframe {
 <br>
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 
-  Fursona work in progress (NSFW) v23
+  Fursona work in progress (NSFW) v24
 -=============================================-
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
@@ -46,6 +46,8 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 • Eyes: Dark-blue eyes.
 
 • Hair: Long butt-length soft black-hair, slightly curly. Her hair is always quite warm.
+
+• On the regular: Spends her time in bed. She's a gamer gainer kitty, playing games a lot of the time, with a wireless controller, and watching videos- between the times she's stuffing her face.
 
 • Tail: she has a reasonable length adorable fluffy cat tail, which is colored similarly to the rest of her fur, it's usually squished by her fat butt
 
