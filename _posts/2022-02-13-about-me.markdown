@@ -6,7 +6,7 @@ published: true
 permalink: https://novimatrem.gitlab.io/novisona/2022-02-13-about-me.html
 redirect_from: https://novimatrem.gitlab.io/novisona/2022-02-13-about-me.html
 redirect_to:  https://novimatrem.gitlab.io/novisona/about
-date:   2023-03-15 09:36:00
+date:   2023-05-19 21:01:00
 ---
 If you are not redirected automatically, follow this [https://novimatrem.gitlab.io/novisona/about](https://novimatrem.gitlab.io/novisona/about) link to novimatrem.gitlab.io/novisona/about
 <html lang="en">
