@@ -23,10 +23,9 @@ iframe {
 </style>
 <br>
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
-<br><br><br><br>
+<br><br>
 
 A fat girl who just <b><i>doesn't</i></b> move.<br>
-
 
 # Fursona work in progress (NSFW) v26
 
