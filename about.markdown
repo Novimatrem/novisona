@@ -25,9 +25,9 @@ iframe {
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 <br><br>
 
-A fat girl who just <b><i>doesn't</i></b> move.<br>
+A <b><i>very</i></b> fat girl who just <b><i>doesn't</i></b> move.<br>
 
-# Fursona work in progress (NSFW) v26
+## Fursona work in progress (NSFW) v27
 
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
