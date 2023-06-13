@@ -27,7 +27,7 @@ iframe {
 
 A <b><i>very</i></b> fat girl who just <b><i>doesn't</i></b> move.<br>
 
-## Fursona work in progress (NSFW) v28
+## Fursona work in progress (NSFW) v29
 
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
@@ -57,6 +57,8 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 • Tail: she has a reasonable length adorable fluffy cat tail, which is colored similarly to the rest of her fur, it's usually squished by her fat butt
 
 • Mood: sleepy/relaxed/calm/happy - she spends most of her time sleeping and eating.
+
+• Favourite season: Spring
 
 • Favourite food: Bacon triple-cheeseburger
 
