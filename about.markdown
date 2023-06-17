@@ -27,7 +27,7 @@ iframe {
 
 A <b><i>very</i></b> fat girl who just <b><i>doesn't</i></b> move.<br>
 
-## Fursona work in progress (NSFW) v30
+## Fursona work in progress (NSFW) v31
 
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
@@ -72,7 +72,7 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • Mobility: very little, she can basically only stand for around 30 seconds at a time, and even that's very physically taxing and demanding, only can manage very very slowly waddling. Essentially remains immobile, for the best. She hasn't reasonably been able to stand since for many years, and doesn't try to anymore.
 
-• Paws: she has them, yes. both at the end of her arms, and at the bottom of her legs. 100% paws, all the time.
+• Paws: she has them, yes. both at the end of her arms, and at the bottom of her legs. 100% paws, all the time. Her claws are painted with black nail varnish.
 
 • Sexuality: Pansexual Polyamorous
 
