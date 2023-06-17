@@ -27,7 +27,7 @@ iframe {
 
 A <b><i>very</i></b> fat girl who just <b><i>doesn't</i></b> move.<br>
 
-## Fursona work in progress (NSFW) v29
+## Fursona work in progress (NSFW) v30
 
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
@@ -52,7 +52,7 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • On the regular: Spends her time in bed. She's a gamer gainer kitty, playing games a lot of the time, with a wireless controller, and watching videos- between the times she's stuffing her face.
 
-• Temperament: She's a little empty-headed, sometimes, but she means well- she has a good heart and kind soul.
+• Temperament: She's a little empty-headed, sometimes, but she means well- she has a good heart and kind soul. She's sweet.
 
 • Tail: she has a reasonable length adorable fluffy cat tail, which is colored similarly to the rest of her fur, it's usually squished by her fat butt
 
