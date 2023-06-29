@@ -27,7 +27,7 @@ iframe {
 
 A <b><i>very</i></b> fat girl who just <b><i>doesn't</i></b> move.<br>
 
-## Fursona work in progress (NSFW) v31
+## Fursona work in progress (NSFW) v32
 
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
@@ -61,6 +61,8 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 • Favourite season: Spring
 
 • Favourite food: Bacon triple-cheeseburger
+
+• Favourite cereal: Kellogg's Crunchy Nut Cornflakes
 
 • Weight: 1,863lbs [which equals to 845kg] A lot of her weight is located at her belly. She's extremely heavily morbidly obese. Her belly button is an innie.
 
