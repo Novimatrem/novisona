@@ -27,7 +27,7 @@ iframe {
 
 A <b><i>very</i></b> fat girl who just <b><i>doesn't</i></b> move.<br>
 
-## Fursona work in progress (NSFW) v33
+## NSFW (Not Safe for Work)
 
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
@@ -94,6 +94,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
     <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
+<sup><sub>[Fursona work in progress (NSFW) v34]</sub></sup>
 
 
 
