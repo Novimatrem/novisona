@@ -27,6 +27,8 @@ iframe {
 
 A <b><i>very</i></b> fat girl who just <b><i>doesn't</i></b> move.<br>
 
+<span title="Click to open in new tab"><a target="_blank" href="https://www.deviantart.com/novimatrem/art/New-profile-picture-July-2023-973063775"><img style="width:auto; height:127px; border-radius: 84px; float:left; padding: 0px; margin:5px; margin-right:32px;" src="https://novimatrem.gitlab.io/blog/123_pfpjuly2023.png" alt=""></a></span>
+
 ## NSFW (Not Safe for Work)
 
 
@@ -94,7 +96,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
     <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
-<sup><sub>[Fursona work in progress (NSFW) v35]</sub></sup>
+<sup><sub>[Fursona work in progress (NSFW) v36]</sub></sup>
 
 
 
