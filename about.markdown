@@ -64,9 +64,9 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • Favourite food: Bacon triple-cheeseburger
 
-• Favourite cereal: Kellogg's Crunchy Nut Cornflakes
+• Favourite cereal: Crunchy Nut Cornflakes
 
-• Favourite fast-food: KFC (Kentucky Fried Chicken)
+• Favourite fast-food: KFC
 
 • Weight: 1,863lbs [which equals to 845kg] A lot of her weight is located at her belly. She's extremely heavily morbidly obese. Her belly button is an innie.
 
@@ -96,7 +96,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
     <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
-<sup><sub>[Fursona work in progress (NSFW) v36]</sub></sup>
+<sup><sub>[Fursona work in progress (NSFW) v37]</sub></sup>
 
 
 
