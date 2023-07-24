@@ -82,7 +82,7 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • On her chest: Six (6) breasts, with large nipples, her boobs are swollen and fat.
 
-• Genitals: full package futa girl, with a penis (14 inches, barbed), vagina, and testes (big). Though they are all certainly covered and hidden by her extreme fatness, and immense pregnancy, regardless.
+• Genitals: full package futa girl, with all the parts. Though they are all certainly covered and hidden by extreme fatness and pregnancy, regardless.
 
 My existing profile picture is a reasonable idea of what her face is somewhat like, but, you know, furrier, and with whiskers and such :3
 
@@ -94,7 +94,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
     <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
-<sup><sub>[Fursona work in progress (NSFW) v34]</sub></sup>
+<sup><sub>[Fursona work in progress (NSFW) v35]</sub></sup>
 
 
 
