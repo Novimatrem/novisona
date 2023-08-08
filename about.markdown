@@ -64,7 +64,7 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • Favourite foods: Bacon triple-cheeseburger, Tofu, Feta Cheese
 
-• Favourite drinks: Cup of Tea, Soy Milk
+• Favourite drinks: Cup of Tea, Soy Milk, Chocolate Milk
 
 • Favourite cereal: Crunchy Nut Cornflakes
 
@@ -98,7 +98,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
     <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
-<sup><sub><b>[Fursona work in progress (NSFW) v39]</b></sub></sup>
+<sup><sub><b>[Fursona work in progress (NSFW) v40]</b></sub></sup>
 
 
 
