@@ -70,7 +70,7 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • Favourite fast-food: KFC
 
-• Weight: 1,863lbs [which equals to 845kg] A lot of her weight is located at her belly. She's extremely severely morbidly obese. Her belly button is an innie. This is a non-negotiable fact, the truth. Her weight will only grow heavier over time.
+• Weight: 1,863lbs [which equals to 845kg, or 133st] A lot of her weight is located at her belly. She's extremely severely morbidly obese. Her belly button is an innie. This is a non-negotiable fact, the truth. Her weight will only grow heavier over time.
 
 • Pregnancy: YES, very. Has been continuously pregnant with many multiples, starting a few years ago, and still going. Her massive womb perpetually gigantic.
 
@@ -98,7 +98,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
     <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
-<sup><sub><b>[Fursona work in progress (NSFW) v41]</b></sub></sup>
+<sup><sub><b>[Fursona work in progress (NSFW) v42]</b></sub></sup>
 
 
 
