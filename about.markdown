@@ -76,7 +76,7 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • Body fat percentage: 94%
 
-• Mobility: very little, she can basically only stand for around 30 seconds at a time, and even that's very physically taxing and demanding, only can manage very very slowly waddling. Essentially remains immobile, for the best. She hasn't reasonably been able to stand since for many years, and doesn't try to anymore.
+• Mobility: none, she can not stand. She hasn’t been able to move in years, not even slightly- she wouldn’t want to, and has no reason to, anyway. Remains immobile, for her health and weight gain. She doesn't even try to move because there's no need and she wouldn't manage it regardless.
 
 • Paws: she has them, yes. both at the end of her arms, and at the bottom of her legs. 100% paws, all the time. Her claws are painted with black nail varnish.
 
@@ -96,7 +96,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
     <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
-<sup><sub><b>[Fursona work in progress (NSFW) v42]</b></sub></sup>
+<sup><sub><b>[Fursona work in progress (NSFW) v43]</b></sub></sup>
 
 
 
