@@ -32,6 +32,8 @@ A <b><i>very</i></b> fat girl who just <b><i>doesn't</i></b> move.<br>
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
+🐾
+
 • Name: zoey
 
 • Species: Cat (cat girl, with fur)
@@ -96,7 +98,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
     <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
-<sup><sub><b>[Fursona work in progress (NSFW) v43]</b></sub></sup>
+<sup><sub><b>[Fursona work in progress (NSFW) v44]</b></sub></sup>
 
 
 
