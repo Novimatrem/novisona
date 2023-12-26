@@ -29,7 +29,7 @@ A <b><i>very</i></b> fat girl who just <b><i>doesn't</i></b> move.<br>
 
 ## 🚫 NSFW (Not Safe for Work) 🚫
 
-💚 🌼 💐 🌸 🌺 🪷 🌹 🌻 🌷
+💚 🌼 💐 🌸 🌻 🌷
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
