@@ -39,11 +39,13 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • Species: Cat (cat girl, with fur)
 
+• Breed: blackish dark brown ragdoll cat
+
 • Gender: Female
 
 • Pronouns: she/her/hers
 
-• Fur: Dark brown fur, blackish brown. Her fur is always quite warm.
+• Fur: Dark brown fur, blackish brown. Her fur is always quite warm. It's medium length, and fluffy.
 
 • Stance: bipedal
 
@@ -99,7 +101,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
     <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
-<sup><sub><b>[Fursona work in progress (NSFW) v44]</b></sub></sup>
+<sup><sub><b>[Fursona work in progress (NSFW) v45]</b></sub></sup>
 
 
 
