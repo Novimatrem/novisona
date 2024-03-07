@@ -22,6 +22,8 @@ iframe {
 }
 </style>
 <br>
+I am being impersonated on Steam. The only real account for me is <a href="https://steamcommunity.com/id/Novimatrem/">https://steamcommunity.com/id/Novimatrem/</a> - any others are not I, zoey Globe, Novimatrem, and are instead those acting to defame and harass me.
+<br>
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 <br><br>
 
