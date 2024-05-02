@@ -29,13 +29,10 @@ I am being impersonated on Steam. The only real account for me is <a href="https
 
 A <b><i>very</i></b> fat girl who just <b><i>doesn't</i></b> move.<br>
 
-## 🚫 NSFW (Not Safe for Work) 🚫
-
-💚 🌼 💐 🌸 🌻 🌷
+## NSFW (Not Safe for Work)
 
 Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
-🐾
 
 • Name: zoey
 
