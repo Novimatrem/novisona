@@ -24,6 +24,7 @@ iframe {
 <br>
 I am being impersonated on Steam. The only real account for me is <a href="https://steamcommunity.com/id/Novimatrem/" style="color:#008148;">https://steamcommunity.com/id/Novimatrem/</a> - any others are not I, zoey Globe, Novimatrem, and are instead those acting to defame and harass me.
 <br>
+
 <sup><b>[!!!] only +18 please, there's a very big, large, and potentailly lewd, explicit, and sexual animal person here! [!!!]</b></sup>
 <br><br>
 
@@ -100,7 +101,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
     <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
-<sup><sub><b>[Fursona work in progress (NSFW) v45]</b></sub></sup>
+<sup><sub><b>[Fursona work in progress (NSFW) v46]</b></sub></sup>
 
 
 
