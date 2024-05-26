@@ -85,7 +85,7 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • Paws: she has them, yes. both at the end of her arms, and at the bottom of her legs. 100% paws, all the time. Her claws are painted with black nail varnish.
 
-• Sexuality: Pansexual Polyamorous
+• Sexuality: Pansexual Polyamorous (Sapphic/Lesbian leaning)
 
 • On her chest: Six (6) breasts, with large nipples, her boobs are swollen and fat.
 
@@ -101,7 +101,7 @@ My existing profile picture is a reasonable idea of what her face is somewhat li
     <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
 </details>
 
-<sup><sub><b>[Fursona work in progress (NSFW) v46]</b></sub></sup>
+<sup><sub><b>[Fursona work in progress (NSFW) v47]</b></sub></sup>
 
 
 
