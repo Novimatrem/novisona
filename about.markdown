@@ -92,17 +92,4 @@ Her BMI is almost certainly higher in number, than what your weight is in lbs.
 
 • Genitals: full package futa girl, with all the parts. Though they are all certainly covered and hidden by extreme fatness and pregnancy, regardless.
 
-My existing profile picture is a reasonable idea of what her face is somewhat like, but, you know, furrier, and with whiskers and such :3
-
-**There is no art of my fursona, yet.**
-
-#### Novimatrem existing profile image (not my fursona):
-<details>
-    <summary>Show/hide:</summary>
-    <img src="https://novimatrem.uk/assets/images/avatar/novi-pfp-max-resolution.png" style="width:70%; height:auto;">
-</details>
-
-<sup><sub><b>[Fursona work in progress (NSFW) v48]</b></sub></sup>
-
-
-
+<b>[Fursona work in progress (NSFW) v48]</b>

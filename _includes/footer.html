@@ -17,11 +17,7 @@ if (window.location.hostname == 'novimatrem.gitlab.io') {
     <div class="footer-col-wrapper">
       <div class="footer-col">
         <p class="feed-subscribe">
-          <a href="{{ 'feed.xml' | relative_url }}" style="color:#008148;">
-            <svg class="svg-icon orange">
-              <use xlink:href="{{ 'assets/minima-social-icons.svg#rss' | relative_url }}"></use>
-            </svg><span>Subscribe</span>
-          </a>
+          
         </p>
       {%- if site.author %}
         <ul class="contact-list">
@@ -35,7 +31,6 @@ if (window.location.hostname == 'novimatrem.gitlab.io') {
       {%- endif %}
       </div>
       <div class="footer-col">
-        <p>{{ site.description | escape }}</p>
       </div>
     </div>
 
